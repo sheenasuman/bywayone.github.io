@@ -1,1 +1,0 @@
-# bywayone.github.io
